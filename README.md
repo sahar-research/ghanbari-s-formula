@@ -1,0 +1,1 @@
+# ghanbari-s-formula
